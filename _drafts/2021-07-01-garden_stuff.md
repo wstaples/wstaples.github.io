@@ -92,3 +92,9 @@ I haven't seen any bugs yet but something is definitely eating the basil and cha
 
 Changed the hydro nutrients. New one are testing at 1.2. There was mosquito larva in it. I changed the air stone to the smaller blue one to see if it would make more turbulence. I think that would help the mosquito issue. I will also get some craft felt at Walmart to replace the wicking strips that I lost.
 
+## 07/10
+
+After several days of rain / cloudy weather, yesterday was very hard rain with a flood watch, I have changed the hydro fluid again. Before changing it tested with a PH of 8 and .4 EC. No mosquitoes this time. I did not change the fluid I just removed the excess water (it was very full) and added some about 1.5 tsp nutrients and 1.5 tsp vinegar. Now it tests at 1.6EC and 6.6 PH. I also installed the wicks. I used white craft felt I bought at Walmart for 28 cents. I did not put a wick in the spearmint as it has a large root system the size of a softball and seems to be thriving. I'm doing an experiment with the wicks and squash. The squash all the way to the left that has 2 plants in it seems to be the best of the 2. I put a wick in the center squash that is slightly smaller. The theory being that if the wicks actually do anything the single squash that was a little smaller should start growing faster. 
+
+The tomato plants seem to be doing something worthy of investigation. The leaves are curling like a taco. googling says that its stress probably all of the wind and hard rain we have had. There was also the extreme heat last week. (6/29)
+
