@@ -98,3 +98,18 @@ After several days of rain / cloudy weather, yesterday was very hard rain with a
 
 The tomato plants seem to be doing something worthy of investigation. The leaves are curling like a taco. googling says that its stress probably all of the wind and hard rain we have had. There was also the extreme heat last week. (6/29)
 
+## 07/13
+
+Deer! The deer have gotten into my garden and eaten the swiss chard completely. as well as the very tops to the strawberries. They have completely eaten both cabbage plants located in my potato garden as well as one in the bucket.  I still have one remaining cabbage plant in the garden as well as one in the hydro. 
+
+## 07/14
+
+Even after a few days of cloudy damp weather the buckets were empty and needed water. I moved the new snap peas to the front of the bucket. They are doing great. already bigger than the one remaining from Paris farmers which is barley hanging on. I should plant a fast crop in the buckets that have now become available due to the dear. 2 in all. 
+
+## 2021 Conclusion
+
+I under estimated the amount of soil it would take to fill all the buckets. especially the potato garden.
+
+I under estimated the amount of money this would take
+
+It seems that nursing sick seedlings/young plants would actually take longer that just planting new ones sometimes. My snap peas for example. I planted 3 seeds after I knew the paris farmers peas were not going to make it. The basil in the hydro is really struggling and I think it would have been faster to just plant a bunch of new ones like self sufficient me does.
