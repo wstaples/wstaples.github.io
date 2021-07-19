@@ -9,11 +9,11 @@ categories: nomad
 
 ## ToDo
 
-| Action                 | When                   |
-| ---------------------- | ---------------------- |
-| More soil for potatoes | Potatoes start to grow |
-|                        |                        |
-|                        |                        |
+| Action                                 | When |
+| -------------------------------------- | ---- |
+| Buy more soil                          | Now  |
+| Plant 2 empty buckets with something   | Now  |
+| Find out why tomato plants turn yellow |      |
 
 
 
@@ -105,6 +105,26 @@ Deer! The deer have gotten into my garden and eaten the swiss chard completely. 
 ## 07/14
 
 Even after a few days of cloudy damp weather the buckets were empty and needed water. I moved the new snap peas to the front of the bucket. They are doing great. already bigger than the one remaining from Paris farmers which is barley hanging on. I should plant a fast crop in the buckets that have now become available due to the dear. 2 in all. 
+
+## 07/15
+
+I have finally filled the potato planter. I used the 2 buckets the deer made available. The Swiss chard had an amazing root system that reached into the water resivior. The net pot was root bound and kept its shape after being removed. No mold or misquotes. 
+
+I had to make another batch of the promix style with compost and a mix of 1 bucket peat moss + 1 bucket vermiculate (no compost). I now have 2 empty buckets that need soil and can be planted. https://www.ufseeds.com/what-to-plant-in-july.html
+
+Beans (pole)
+
+Brussel Sprouts
+
+Cucumbers
+
+
+
+
+
+## 07/16
+
+2 of the tomato plants have bottom leaves that are starting to turn yellow. The plants are the large variety not the cherry. 
 
 ## 2021 Conclusion
 
